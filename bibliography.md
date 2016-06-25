@@ -34,6 +34,8 @@
 
 [Extrastatecraft](http://smile.amazon.com/Extrastatecraft-Power-Infrastructure-Keller-Easterling/dp/1781685878?ie=UTF8&keywords=extrastatecraft&qid=1465441516&ref_=sr_1_1&sr=8-1) by Keller Easterling
 
+[Society of the Spectacle](https://monoskop.org/images/e/e4/Debord_Guy_Society_of_the_Spectacle_1970.pdf) by Guy Debord
+
 ## The Spatial Turn
 
 [Postmodern Geographies](https://smile.amazon.com/Postmodern-Geographies-Reassertion-Critical-Thinkers/dp/1844676692?ie=UTF8&dpID=31-Dsf9xuzL&dpSrc=sims&preST=_AC_UL160_SR106%2C160_&refRID=1RP474BGP3A7PGE32XXP&ref_=pd_sim_14_4&sa-no-redirect=1) by Edward W. Soja
