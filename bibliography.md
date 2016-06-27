@@ -60,4 +60,4 @@
 
 ## Spatial Artists
 
-Gedi Sibony, Carl Andre, James Turrell, Andrea Fraser, Michael Hezier, Constantin Brancusi… and more. 
+Gedi Sibony, Carl Andre, James Turrell, Andrea Fraser, Michael Hezier, Constantin Brancusi, Richard Serra, Andrea Zittel, Anthony Mccall, Alex Da Corte, Sarah Sze, and more…
